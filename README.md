@@ -1,2 +1,3 @@
 # hello-world
 My first one 
+I'm Mateusz and I currently sit in the office in The Revelry company in Kuala Lumpur. Having my internship here is very suprising. I am learning a lot about myself and business. Great experience and awesome people. Hurrra !!! Hope to learn how to code soon... 
